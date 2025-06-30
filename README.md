@@ -83,10 +83,10 @@ In the growing cosmetics industry, users are overwhelmed by the wide range of pr
 ## 🧑‍💻 Team Members
 
 - Prashamsha Mankar  
-- [Team Member 2]  
-- [Team Member 3]  
-- [Team Member 4]  
-- [Team Member 5]
+- Sai Chandana Reddivari  
+- Krishna Sai Meda  
+- Charan Kumar Rajulapalem  
+- Keerti Patti
 
 ---
 
