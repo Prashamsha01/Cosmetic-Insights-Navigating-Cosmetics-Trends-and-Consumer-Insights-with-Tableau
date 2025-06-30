@@ -86,7 +86,7 @@ In the growing cosmetics industry, users are overwhelmed by the wide range of pr
 - Sai Chandana Reddivari  
 - Krishna Sai Meda  
 - Charan Kumar Rajulapalem  
-- Keerti Patti
+- Keerti Patthi
 
 ---
 
